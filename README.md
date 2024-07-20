@@ -1,0 +1,1 @@
+# qajuly24-HubertBartkowiak
